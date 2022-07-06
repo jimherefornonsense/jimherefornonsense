@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jimherefornonsense
 - 👀 I’m interested in A PINT.
-- 🌱 I’m currently learning BE MY OWN.
+- 🌱 I’m currently learning ANYTHING EXCITING.
 - 💞️ I’m looking to collaborate on SOME MUSE IN ORDINARY.
 - 📫 How to reach me..
 
